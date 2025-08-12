@@ -1,5 +1,8 @@
 # Jorgg00
 
-visual compile
+ ## Heyy, I'm Jorg, student from Mexico 🧏🏻‍♂️
+ 
+ ## Links
+ [Instagram](https://www.instagram.com/lagrimadehigo/)
 
 <!-- hh -->
